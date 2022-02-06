@@ -1,0 +1,3 @@
+- hello!
+- Interested in lots, but particularly sleek and convenient software that does only what you need.
+- Mostly self taught, til recently
